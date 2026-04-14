@@ -1,1 +1,1 @@
-https://github.com/gogawejoi/ono-tebe-nabo
+https://github.com/gogawejoi/ono-tebe-nabo-ad
